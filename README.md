@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **jijin1210@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/jijin/OneDrive/Desktop/Resumes%20for%20data%20science/JIJIN_DataScientist_2yrs_30.pdf](file:///C:/Users/jijin/OneDrive/Desktop/Resumes%20for%20data%20science/JIJIN_DataScientist_2yrs_30.pdf)
+- 📄 Know about my experiences [https://www.canva.com/design/DAEvl1DaRwU/ERmins9SSB7v4W8DFbzm2Q/view?utm_content=DAEvl1DaRwU&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton](https://www.canva.com/design/DAEvl1DaRwU/ERmins9SSB7v4W8DFbzm2Q/view?utm_content=DAEvl1DaRwU&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton)
 
 - ⚡ Fun fact **I think I'm funny :D**
 
